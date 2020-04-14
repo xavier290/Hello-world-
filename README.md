@@ -1,2 +1,3 @@
 # Hello-world-
-this is my first time here😜
+Hi there! ✌
+i'm here because i want to learn something new😉
